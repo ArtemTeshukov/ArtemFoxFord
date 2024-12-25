@@ -1,5 +1,1 @@
 # ArtemFoxFord
-## Hello!
-
-
-# Alalalalalalallalalalalalalalalalalallalal
